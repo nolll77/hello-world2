@@ -1,1 +1,1 @@
-"Hello!" bnonjur ok
+"Hello!" bnonjur oki
